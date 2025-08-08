@@ -1,6 +1,7 @@
 ,, <3 Discord : .scolisis.lennon. 🌸🌈
 
-![6001f5dc855201b1dd2a9512232a41ba](https://github.com/user-attachments/assets/472cb155-8369-400e-9ef2-e348ce338662) ![5bb44e5e9482347bbc45a42fe9c728f7](https://github.com/user-attachments/assets/6f6f58f1-a0ad-4b5b-84e0-38f097e57496)
+![6001f5dc855201b1dd2a9512232a41ba](https://github.com/user-attachments/assets/472cb155-8369-400e-9ef2-e348ce338662) ![5bb44e5e9482347bbc45a42fe9c728f7](https://github.com/user-attachments/assets/6f6f58f1-a0ad-4b5b-84e0-38f097e57496)<img width="100" height="100" alt="album_2025-04-26_17-54-48" src="https://github.com/user-attachments/assets/bc9c355e-3786-4998-ba19-951c5bd77a7c" />
+
 
 
 🌸 Ello Luv ~
