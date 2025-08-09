@@ -1,7 +1,8 @@
 ,, <3 Discord : .scolisis.lennon. 🌸🌈
 
-![6001f5dc855201b1dd2a9512232a41ba](https://github.com/user-attachments/assets/472cb155-8369-400e-9ef2-e348ce338662) ![5bb44e5e9482347bbc45a42fe9c728f7](https://github.com/user-attachments/assets/6f6f58f1-a0ad-4b5b-84e0-38f097e57496)<img width="100" height="100" alt="album_2025-04-26_17-54-48" src="https://github.com/user-attachments/assets/bc9c355e-3786-4998-ba19-951c5bd77a7c" />
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316n6n5sqdsmwdellnb3g4yxayiu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=c2c2c2&interchange=false&bar_color=746767&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+<img width="200" height="200" alt="album_2025-04-26_17-54-48" src="https://github.com/user-attachments/assets/1347e3d8-2534-405b-b1cf-9177ca4ba67f" />
 
 
 🌸 Ello Luv ~
@@ -10,8 +11,3 @@
 
 
 🏵️ I Luv You ~
-
-
-
-https://github.com/user-attachments/assets/78598911-db25-4737-b6a1-24fd84021c8a
-
