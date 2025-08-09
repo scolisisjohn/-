@@ -2,7 +2,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316n6n5sqdsmwdellnb3g4yxayiu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=c2c2c2&interchange=false&bar_color=746767&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="200" height="200" alt="album_2025-04-26_17-54-48" src="https://github.com/user-attachments/assets/1347e3d8-2534-405b-b1cf-9177ca4ba67f" />
+<img width="100" height="100" alt="album_2025-04-26_17-54-48" src="https://github.com/user-attachments/assets/1347e3d8-2534-405b-b1cf-9177ca4ba67f" />
 
 
 🌸 Ello Luv ~
