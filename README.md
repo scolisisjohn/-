@@ -1,4 +1,4 @@
-,, <3 Discord : .scolisis.lennon. 🌸🌈
+,, <3 Discord : yknow.com 🌸🌈
 
 ![fdba3c994345925cfc7002ea4bf6aceb](https://github.com/user-attachments/assets/d222dac7-39e5-4dcf-a7aa-6ca6ab078e6d) <img width="100" height="100" alt="album_2025-04-26_17-54-48" src="https://github.com/user-attachments/assets/4524fd8f-6996-4b7a-889a-41a749822b0e" />
 
